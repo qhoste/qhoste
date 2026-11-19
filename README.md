@@ -1,2 +1,2 @@
-# 🧡 𝕶𝖗𝖎𝖘𝖙𝖎𝖆𝖓 / qhoste 🧡
+# 🧡 𝖖𝖍𝖔𝖘𝖙𝖊 🧡
 i drive car and code sometimes <br>
